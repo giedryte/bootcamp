@@ -1,1 +1,1 @@
-Hello World! How are you?
+Labas, Pasauli
