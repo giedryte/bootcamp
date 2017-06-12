@@ -1,1 +1,1 @@
-Labas, Pasauli :)
+laba diena
